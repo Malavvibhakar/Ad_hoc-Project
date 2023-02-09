@@ -1,1 +1,0 @@
-# Ad_hoc-Project
